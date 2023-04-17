@@ -1,3 +1,3 @@
-Sagar Shrestha
-https://sagarshr.github.io/
-http://sagarshrestha2005.com.np/
+Sagar Shrestha <br>
+https://sagarshr.github.io/ <br>
+http://sagarshrestha2005.com.np/ <br>
